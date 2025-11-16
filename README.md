@@ -1,2 +1,0 @@
-# Tuitions
-All tuitions notes
